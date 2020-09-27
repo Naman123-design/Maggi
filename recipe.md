@@ -1,0 +1,1 @@
+First take a pan and pour 250 ml water for one packet. then turn on the gas and keep the pan on the gas. then let the water boil. afer some time put the masala in the water. then put the pieces og maggi in water wait for 3-4 mins. after 3-4 mins turn off the gas anf take a fork and enjoy eating maggi.
